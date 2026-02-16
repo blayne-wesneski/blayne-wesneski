@@ -1,1 +1,1 @@
-College student pursuing a major in Cybersecurity and a minor in Software Development with a planned graduation date of 2024.
+IT Professional with a Bachelor of Science in Information Assurance and Cyberseurity with a Software Devleopment Minor. Hobbyist programmer on the side, mostly when I have time.
